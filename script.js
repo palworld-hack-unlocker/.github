@@ -1,1 +1,0 @@
-console.log("palworld hack unlocker is active!");
